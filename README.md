@@ -1,6 +1,14 @@
 **_hi !!_**
 
-![20241114_230822](https://github.com/user-attachments/assets/8f8456fb-8082-486a-9e6b-4752eb066b5b)
+
+
+
+![8a72358026d1161629d3170968ed4e41](https://github.com/user-attachments/assets/ec3dfc39-71b1-49b5-9535-50d905d98271)
+<sub>_by qgelics__</sub>
+
+
+
+└
 
 
 
@@ -8,12 +16,12 @@
 its me, __p__. 
 yes only __p__ cuz i fw short name.
 
-multi fandom, can give up on a fandom very quickly if i get bored.
+multi fandom: alnst, gi, pjsk, hsr and others m-a
 
 
-please **dont ask** about my _gender_ (im really self conscious), just always use **"they/them"** pls.
+please **dont ask** about my _gender_ (so self conscious), just always use **"they/them"** pls.
 
-**dont copy** my _appearance_, im really upset >_<.
+**dont copy** my _appearance_, so annoying.
 
 
 contact w me at:
