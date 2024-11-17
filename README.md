@@ -16,7 +16,7 @@
 its me, __p__. 
 yes only __p__ cuz i fw short name.
 
-multi fandom: alnst, gi, pjsk, hsr and others m-a
+multi fandom: alnst, gi, pjsk, hsr and others m-a.
 
 
 please **dont ask** about my _gender_ (so self conscious), just always use **"they/them"** pls.
