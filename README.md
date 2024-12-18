@@ -1,12 +1,8 @@
 
-![Untitled135_20241125110245](https://github.com/user-attachments/assets/56979b01-2e53-4f5e-9d5d-fed7079e689c)
+![1000005958](https://github.com/user-attachments/assets/4c9eb5cb-6015-4512-a06e-e8507bc8ae8a)
 
 
-<sub>_by xhs id:378694504_</sub>
 
+<sub>_discord: p__fj_<sub>
 
-contact w me at:
-
-discord: p__fj
-
-email: yueelias197@gmail.com
+<sub>_email: yueelias197@gmail.com_<sub>
