@@ -1,4 +1,4 @@
+![akitoya-akito-shinonome](https://github.com/user-attachments/assets/f18e4ab7-1fb2-46ab-9397-739ce2f93137)
 
-![1000005958](https://github.com/user-attachments/assets/4c9eb5cb-6015-4512-a06e-e8507bc8ae8a)
 
 ㅤㅤㅤㅤㅤ  ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=25-00-at&color=26263f)
