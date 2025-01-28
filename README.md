@@ -1,5 +1,6 @@
 
-![midori-yttd](https://github.com/user-attachments/assets/8a1f50f2-3197-4a6b-ba98-9f75c0173129)
-<sub>_freak, jk_<sub/>
+![magi-friend](https://github.com/user-attachments/assets/ade11791-de85-42b2-9d50-1471eb2b42c6)
+
+<sub>_i love yall my friends ^q^_<sub/>
 
 ㅤㅤㅤㅤㅤ  ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=25-00-at&color=73cdb6)
