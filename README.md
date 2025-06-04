@@ -2,6 +2,6 @@
 
 
 
-ㅤㅤㅤㅤㅤ<sub>_love yall, my friends ♡_<sub/>
+ㅤㅤㅤㅤㅤㅤ<sub>_love yall, my friends ♡_<sub/>
 
 ㅤㅤㅤㅤㅤ  ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=25-00-at&color=8a95af)
