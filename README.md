@@ -9,5 +9,5 @@
 
 
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=25-00-at&label=𓃺&color=9fafab)ㅤㅤ
-## <sub>_i dont have a fixed style, i change and use according to my understanding of color theory._</sub>`
+## <sub>_i dont have a fixed style, i change and use according to my understanding of color theory._</sub>
 ㅤㅤㅤㅤㅤㅤ
