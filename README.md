@@ -1,4 +1,3 @@
 ㅤ ㅤ ㅤㅤ ㅤ ㅤ ㅤ ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=25-00-at&label=𓃺&color=9fafab)ㅤ 
-<img width="2250" height="3000" alt="1000013671" src="https://github.com/user-attachments/assets/4ee31473-cafa-4a6f-ac91-5cebe55122af" />
+<img width="900" height="300" alt="1000013469" src="https://github.com/user-attachments/assets/4f2e52fc-60b9-4da3-98d2-5f8a8fd61926" />
 
-<sub> my birthday artwork(persona btw), please don't do anything to it (⁠ʘ⁠ᴗ⁠ʘ⁠✿⁠)</sub>
