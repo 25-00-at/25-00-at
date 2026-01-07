@@ -1,3 +1,3 @@
 ㅤ ㅤ ㅤㅤ ㅤ ㅤ ㅤ ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=25-00-at&label=𓃺&color=c9dfec)ㅤ 
 
-![1000013763](https://github.com/user-attachments/assets/37e3f612-46cd-4832-92d0-2ff80adeef27)
+<img width="1374" height="882" alt="1000015700" src="https://github.com/user-attachments/assets/88337bd8-08aa-4c6e-ae41-2bfce1887675" />
