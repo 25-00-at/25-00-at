@@ -1,3 +1,3 @@
-ㅤ ㅤ ㅤㅤ ㅤ ㅤ ㅤ ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=25-00-at&label=𓃺&color=fce5d5)ㅤ 
+ㅤ ㅤ ㅤㅤ ㅤ ㅤ ㅤ ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=25-00-at&label=𓃺&color=2D2D3F)ㅤ 
+<img width="2048" height="2048" alt="1000019738" src="https://github.com/user-attachments/assets/eaed0290-6499-4bf6-b5a8-22b22509844b" />
 
-<img width="1374" height="882" alt="1000018158" src="https://github.com/user-attachments/assets/53f9dfdb-e14b-44e8-9204-392c6f1b7f3c" />
