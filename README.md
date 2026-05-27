@@ -2,6 +2,6 @@
 
 
 
-ㅤ ㅤ ㅤㅤ ㅤ ㅤ ㅤ ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=25-00-at&label=𓃺&color=c1c1cc)ㅤ 
+ㅤ ㅤ ㅤㅤ ㅤ ㅤ ㅤ ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=25-00-at&label=𓃺&color=8fbff2)ㅤ 
 
 
